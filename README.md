@@ -1,0 +1,1 @@
+# sams-club-attribute-assortment
